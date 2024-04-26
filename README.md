@@ -1,1 +1,1 @@
-Here I am goin to include my pet projects
+Here I am goin to include my projects
